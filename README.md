@@ -14,6 +14,7 @@
 - 📫 How to reach me **abeenkhanal16@gmail.com**
 
 - ⚡ Fun fact **I think iam Funny**
+- hire me 9869672969
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
