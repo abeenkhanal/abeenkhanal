@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **React, MERN, JS,**
 
-- 📫 How to reach me **abeenkhanal16@gmail.com**
+- 📫 How to reach me **abeenkhanal16@gmail.com** 
 
 - ⚡ Fun fact **I think iam Funny**
 
